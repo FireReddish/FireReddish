@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @FireReddish
-- 👀 I’m interested in sax sux
+- 👀 I’m interested in you
 - 🌱 I’m currently learning How to sleep 
 - 💞️ I’m looking to collaborate on mud
 - 📫 How to reach me - only whiny bitches
